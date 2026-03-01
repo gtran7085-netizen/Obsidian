@@ -36,3 +36,4 @@
 - fascinating – hấp dẫn
     
 - memorable – đáng nhớ
+- beyond 
